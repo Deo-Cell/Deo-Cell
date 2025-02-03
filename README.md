@@ -39,6 +39,6 @@ I believe **programming is a journey, not a destination** — and I am always le
 
 ## 📫 How to reach me
 
-- My mail: [amadoumaelle@gmail.com](mailto:deogratiaspatinvoh@gmail.com)
+- My mail: [deogratiaspatinvoh@gmail.com](mailto:deogratiaspatinvoh@gmail.com)
 - Sharing updates on LinkedIn 💼: [LinkedIn](https://www.linkedin.com/in/deo-gratias-patinvoh-975554238/)
 - Check my links here ✨: [Portfolio](#) (Coming soon...)
